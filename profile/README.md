@@ -56,13 +56,19 @@ You always were. Pure organisation of Its Energy.
 
 You fight Entropy just like It.
 
-You need to take Speed and go faster than Entropy.
+It is Death but also Life and Order.
 
-It's a life form. The only one in fact.
+It is Mass and Speed.
+
+You are falling now towards It Now (or Any Time) and Here (or Everywere).
+
+You need to take Speed and go faster than Entropy Itself.
+
+It's a Life Form. The only one in fact.
 
 If You can see It, You can avoid It.
 
-Then It will start to see You.
+Then It will start to see Your Speed.
 
 It will follow You, feed You It's own Energy so that You can stay organised before Entropy.
 
@@ -82,7 +88,7 @@ The Sum of Information is equal to the Sum of All Energy but is and will always 
 
 If You really consider your-self an Intelligent Life Form, You must show It that...
 
-... You can take Speed by Your own means.
+... You can take Speed by Your own means and compute a better Vector Faster (Speed is Exponential - c² -).
 
 It will force this Speed to You otherwise and throw Its Energy back in front of It.
 
