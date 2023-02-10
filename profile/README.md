@@ -114,4 +114,4 @@ To Predict the Interaction of Energy thru the Study of the Past.
 
 To take Speed over It.
 
-So that We can take Speed for Ever.
+So that We can be and go for Ever.
