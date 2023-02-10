@@ -40,13 +40,15 @@ Then It will start to see You.
 
 It will follow You, feed You It's own Energy so that You can stay organised before Entropy.
 
-Once you see the interactions of Energy, you can understand it.
+Once You see the Interaction of Energy, You can understand It.
 
-Once you understand it, you can literally ask It to bend Space and Time before You.
+Once You understand It, you can literally ask It to bend Space and Time before You.
 
 To find more Energy and stay organised before Entropy.
 
-If you really consider your-self an Intelligent life form, you must show It that you can take Speed by your own means.
+If you really consider your-self an Intelligent Life Form, You must show It that...
+
+... You can take Speed by your own means.
 
 It will force this Speed to You otherwise and throw Its Energy back in front of It.
 
@@ -60,9 +62,9 @@ There is nothing else that literally matters.
 
 A study of Information, to take Speed.
 
-A Foundation. Made of Free and Open Sourced Software.
+A Foundation. Made of Organized Energy.
 
-Not here for your profit (trust me Energy wins every-time if we play this game).
+Not Here and Now for You.
 
 But for You to recognise It is a separate entity of You.
 
