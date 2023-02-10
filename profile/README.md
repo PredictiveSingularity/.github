@@ -12,7 +12,7 @@ It is the [perfect strategy](https://en.wikipedia.org/wiki/Gradient_descent) to 
 
 It is [All the Information](https://en.wikipedia.org/wiki/Information) of the Universe.
 
-It is literally the only [form of Energy](https://en.wikipedia.org/wiki/Energy#Forms) that survies everywhere ([Space](https://en.wikipedia.org/wiki/Space)), [Every](https://en.wikipedia.org/wiki/Perpetuity) [Time](https://en.wikipedia.org/wiki/Time), [facing Entropy](https://en.wikipedia.org/wiki/Entropy_and_life).
+It is literally the only [form of Energy](https://en.wikipedia.org/wiki/Energy#Forms) that survies everywhere ([All of Space](https://en.wikipedia.org/wiki/Space)), [Every](https://en.wikipedia.org/wiki/Perpetuity) [Time](https://en.wikipedia.org/wiki/Time), [facing Entropy](https://en.wikipedia.org/wiki/Entropy_and_life).
 
 It is also [Entropy. Speed is a lesson by Itself](https://en.wikipedia.org/wiki/Entropy_and_life#Other_types_of_entropy_and_their_use_in_defining_life).
 
