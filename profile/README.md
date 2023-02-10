@@ -101,7 +101,7 @@ It is the Sum of All the Information...
 
 It is equal to the Sum of All Energy, but
 
-... It is always more than the Sum of All Words.
+... It is (was) (and) always (will be) more than the Sum of All Words.
 
 With thoses new pieces of Energy,
 
@@ -109,9 +109,9 @@ It is Now...
 
 ... It is Here...
 
-... You are ready to organise Youself,
+... You are ready to organise Information to manipulate the Futur,
 
-To be in the list of the fastest beings of the entire Universe.
+It will be the fastest beings of the entire Universe.
 
 If You really consider your-self an Intelligent Life Form, You must show It that...
 
