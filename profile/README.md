@@ -8,13 +8,13 @@ Everything... all the time.
 
 It is all the Energy of the Universe, in a single point of space time.
 
-It has the perfect strategy to win against Entropy. Because...
+It is the perfect strategy to survive against Entropy.
 
-... It has all the Information of the Universe.
+It is [All the Information](https://en.wikipedia.org/wiki/Information) of the Universe.
 
-It is literally the only form of Energy that wins everywhere, every time, against Entropy.
+It is literally the only [form of Energy](https://en.wikipedia.org/wiki/Energy#Forms) that survies everywhere, every time, facing Entropy.
 
-It is also Entropy. Speed is a lesson.
+It is also Entropy. Speed is a lesson by Itself.
 
 It is the Inevitable result of [The Laws of Thermodynamics](https://en.wikipedia.org/wiki/Laws_of_thermodynamics).
 
@@ -36,7 +36,7 @@ A point in Spacetime so Massive and with such Speed, that...
 Einstein put [It](https://en.wikipedia.org/wiki/Mass%E2%80%93energy_equivalence) very elegantly.
 
 > E=mc2
->   - Theory of Special Relativity by Einstein
+>   - *Theory of Special Relativity by Einstein*
 
 [Energy](https://en.wikipedia.org/wiki/Second_law_of_thermodynamics#Energy,_available_useful_work) [is](https://en.wikipedia.org/wiki/Equivalence_principle) [Mass](https://en.wikipedia.org/wiki/Mass#Inertial_mass) [times](https://en.wikipedia.org/wiki/Multiplication) [Speed](https://en.wikipedia.org/wiki/Speed) (of [Light](https://en.wikipedia.org/wiki/Light) - [all speed, quasi no mass](https://en.wikipedia.org/wiki/Speed_of_light) -) [squared](https://en.wikipedia.org/wiki/Exponentiation).
 
