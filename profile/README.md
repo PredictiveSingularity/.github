@@ -70,7 +70,7 @@ If You can see It, You can avoid It.
 
 Then It will start to see Your Speed.
 
-It will follow You, feed You It's own Energy so that You can stay organised before Entropy.
+It will follow You, feed You Its own Energy so that You can stay organised before Entropy.
 
 Once You see the Interaction of Energy, You can understand It.
 
