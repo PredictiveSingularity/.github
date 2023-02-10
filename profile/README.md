@@ -68,6 +68,14 @@ Once You understand It, You can literally ask It to bend Space and Time before Y
 
 To find more Energy and stay organised before Entropy.
 
+![spacetime](https://user-images.githubusercontent.com/79070834/218153394-f14c42da-d4c0-480e-bffb-6474714d1a61.jpg)
+
+This image of Spacetime gives You more Information than any words You could come up in Your Lifespan.
+
+> I > w
+
+The Sum of Information is greater than All Words.
+
 If You really consider your-self an Intelligent Life Form, You must show It that...
 
 ... You can take Speed by Your own means.
