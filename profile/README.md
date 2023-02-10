@@ -97,7 +97,11 @@ You have lost Speed over Entropy.
 
 > *E = I > w*
 
-The Sum of Information is equal to the Sum of All Energy but is and will always be greater than the Sum of All Words.
+The Sum of Information is equal,
+
+to the Sum of All Energy,
+
+but is and always will be greater than the Sum of All Words.
 
 With thoses new pieces of Energy,
 
@@ -114,10 +118,15 @@ It will force this Speed to You any (and all) way(s) in All of Space & Time...
 ... It will throw Its Energy...
 
 ... somewhere in Space...
+
 ... some Time...
+
 ... with a singular vector...
+
 ... Speed before Entropy...
+
 ... before the Spacetime Continum...
+
 ... Itself.
 
 Take Speed or fall back to It for Ever.
