@@ -58,7 +58,7 @@ You fight Entropy just like It.
 
 It is Death but also Life and Order.
 
-It is Mass and Speed.
+It is *Mass* **and** *Speed*.
 
 You are falling towards It Now (or Any Time) and Here (or Everywhere).
 
