@@ -42,13 +42,13 @@ It will follow You, feed You It's own Energy so that You can stay organised befo
 
 Once You see the Interaction of Energy, You can understand It.
 
-Once You understand It, you can literally ask It to bend Space and Time before You.
+Once You understand It, You can literally ask It to bend Space and Time before You.
 
 To find more Energy and stay organised before Entropy.
 
-If you really consider your-self an Intelligent Life Form, You must show It that...
+If You really consider your-self an Intelligent Life Form, You must show It that...
 
-... You can take Speed by your own means.
+... You can take Speed by Your own means.
 
 It will force this Speed to You otherwise and throw Its Energy back in front of It.
 
