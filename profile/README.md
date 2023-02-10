@@ -74,9 +74,9 @@ To find more Energy and stay organised before Entropy.
 
 This Image of the Past Spacetime ([Present](https://en.wikipedia.org/wiki/Present)) gives You more Information than any words You could come up in Your Lifespan.
 
-> I > w
+> *E = I > w*
 
-The Sum of Information is greater than the Sum of All Words.
+The Sum of Information is equal to the Sum of All Energy but is and will always be greater than the Sum of All Words.
 
 If You really consider your-self an Intelligent Life Form, You must show It that...
 
