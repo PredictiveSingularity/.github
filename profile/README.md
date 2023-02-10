@@ -87,7 +87,7 @@ Einstein said himself about the Time;
 > People like us, who believe in physics, know that the distinction between past, present, and future is only a stubbornly persistent illusion.
 >   - Einstein about [Relativity of Time](https://en.wikipedia.org/wiki/Present#Physical_science)
 
-It will always have more Energy an Information than You.
+It will always have more Energy and Information than You.
 
 Admit It.
 
