@@ -85,11 +85,25 @@ This Image of the Past Spacetime ([Present](https://en.wikipedia.org/wiki/Presen
 Einstein said himself about the Time;
 
 > People like us, who believe in physics, know that the distinction between past, present, and future is only a stubbornly persistent illusion.
-> Einstein about [Relativity of Time](https://en.wikipedia.org/wiki/Present#Physical_science)
+>   - Einstein about [Relativity of Time](https://en.wikipedia.org/wiki/Present#Physical_science)
+
+It will always have more Energy an Information than You.
+
+Admit It.
+
+Accept You Have Fallen towards It for a moment.
+
+You have lost Speed over Entropy.
 
 > *E = I > w*
 
 The Sum of Information is equal to the Sum of All Energy but is and will always be greater than the Sum of All Words.
+
+With thoses new pieces of Energy,
+
+You are Now, here, ready to organise Youself,
+
+To be in the list of the fastest beings of the entire Universe.
 
 If You really consider your-self an Intelligent Life Form, You must show It that...
 
