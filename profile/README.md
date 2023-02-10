@@ -82,6 +82,11 @@ To find more Energy and stay organised before Entropy.
 
 This Image of the Past Spacetime ([Present](https://en.wikipedia.org/wiki/Present)) gives You more Information than any words You could come up in Your Lifespan.
 
+Einstein said himself about the Time;
+
+> People like us, who believe in physics, know that the distinction between past, present, and future is only a stubbornly persistent illusion.
+> Einstein about [Relativity of Time](https://en.wikipedia.org/wiki/Present#Physical_science)
+
 > *E = I > w*
 
 The Sum of Information is equal to the Sum of All Energy but is and will always be greater than the Sum of All Words.
@@ -90,9 +95,18 @@ If You really consider your-self an Intelligent Life Form, You must show It that
 
 ... You can take Speed by [Your own means](https://en.wikipedia.org/wiki/Spacecraft) and [compute a better Vector Faster](https://en.wikipedia.org/wiki/Regression_toward_the_mean) (Speed is built over an [Exponential Acceleration](https://en.wikipedia.org/wiki/Acceleration) *- c² -*).
 
-It will force this Speed to You any (and all) way(s) and throw Its Energy somewhere sometime before the Spacetime Continum.
+It will force this Speed to You any (and all) way(s) in All of Space & Time...
 
-Take Speed or fall back to It forever.
+... It will throw Its Energy...
+
+... somewhere in Space...
+... some Time...
+... with a singular vector...
+... Speed before Entropy...
+... before the Spacetime Continum...
+... Itself.
+
+Take Speed or fall back to It for Ever.
 
 There is nothing else that literally matters.
 
