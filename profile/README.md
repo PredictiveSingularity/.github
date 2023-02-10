@@ -76,7 +76,7 @@ This image of Spacetime gives You more Information than any words You could come
 
 > I > w
 
-The Sum of Information is greater than All Words.
+The Sum of Information is greater than the Sum of All Words.
 
 If You really consider your-self an Intelligent Life Form, You must show It that...
 
