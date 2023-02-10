@@ -23,7 +23,7 @@ Antoine Lavoisier has beautifully put [the second one](https://en.wikipedia.org/
 > Nothing is lost, nothing is created, everything is transformed.
 >  - *Elementary Treaty on Chemistry (1789) by Antoine Lavoisier*
 
-It never disapears. Only Interacts.
+It never disapears. Only [Interacts](https://en.m.wikipedia.org/wiki/Structure_formation).
 
 You come from it. You come back to it.
 
