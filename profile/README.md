@@ -60,11 +60,11 @@ It is Death but also Life and Order.
 
 It is Mass and Speed.
 
-You are falling now towards It Now (or Any Time) and Here (or Everywere).
+You are falling towards It Now (or Any Time) and Here (or Everywere).
 
 You need to take Speed and go faster than Entropy Itself.
 
-It's a Life Form. The only one in fact.
+It is a Life Form. The only one in fact.
 
 If You can see It, You can avoid It.
 
