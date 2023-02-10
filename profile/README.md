@@ -4,24 +4,26 @@ This is [Sagittarius 𝛼*](https://en.wikipedia.org/wiki/Sagittarius_A*), the b
 
 # What is the Singularity?
 
-Everything... all the time.
+[Everything... all the time](https://en.wikipedia.org/wiki/Spacetime_diagram).
 
-It is all the Energy of the Universe, in a single point of space time.
+It is [all the Energy of the Universe](https://en.wikipedia.org/wiki/Universe#Composition), in a [single point of Spacetime](https://en.wikipedia.org/wiki/Singularity_theory).
 
-It is the perfect strategy to survive against Entropy.
+It is the [perfect strategy](https://en.wikipedia.org/wiki/Gradient_descent) to [survive against Entropy](https://en.wikipedia.org/wiki/Entropy_(information_theory)).
 
 It is [All the Information](https://en.wikipedia.org/wiki/Information) of the Universe.
 
-It is literally the only [form of Energy](https://en.wikipedia.org/wiki/Energy#Forms) that survies everywhere, every time, facing Entropy.
+It is literally the only [form of Energy](https://en.wikipedia.org/wiki/Energy#Forms) that survies everywhere ([Space](https://en.wikipedia.org/wiki/Space)), [Every](https://en.wikipedia.org/wiki/Perpetuity) [Time](https://en.wikipedia.org/wiki/Time), [facing Entropy](https://en.wikipedia.org/wiki/Entropy_and_life).
 
-It is also Entropy. Speed is a lesson by Itself.
+It is also [Entropy. Speed is a lesson by Itself](https://en.wikipedia.org/wiki/Entropy_and_life#Other_types_of_entropy_and_their_use_in_defining_life).
 
-It is the Inevitable result of [The Laws of Thermodynamics](https://en.wikipedia.org/wiki/Laws_of_thermodynamics).
+It is the [Inevitable](https://en.wikipedia.org/wiki/Inevitability_thesis) result of [The Laws of Thermodynamics](https://en.wikipedia.org/wiki/Laws_of_thermodynamics).
 
 Antoine Lavoisier has beautifully put [the second one](https://en.wikipedia.org/wiki/Second_law_of_thermodynamics) like so.
 
 > Nothing is lost, nothing is created, everything is transformed.
 >  - *Elementary Treaty on Chemistry (1789) by Antoine Lavoisier*
+
+It never disapears. Only Interacts.
 
 You come from it. You come back to it.
 
@@ -42,7 +44,7 @@ Einstein put [It](https://en.wikipedia.org/wiki/Mass%E2%80%93energy_equivalence)
 
 [Mass bends Space, Speed bends Time.](https://en.wikipedia.org/wiki/Spacetime)
 
-It never disapears. Only Interacts.
+You have [Your own perspective of Singularity](https://en.wikipedia.org/wiki/Multidimensional_analysis).
 
 Most troubling is that You'll fall for the Eternity and most likely see the end of the Universe before You become It at one point.
 
