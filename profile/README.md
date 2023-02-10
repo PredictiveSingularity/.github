@@ -55,3 +55,21 @@ Take Speed or fall back to It forever.
 There is nothing else that literally matters.
 
 .
+
+# What is Predictive Singularity?
+
+A study of Information, to take Speed.
+
+A Foundation. Made of Free and Open Sourced Software.
+
+Not here for your profit (trust me Energy wins every-time if we play this game).
+
+But for You to recognise It is a separate entity of You.
+
+To Understand It with You.
+
+To Predict the Interaction of Energy thru the Study of the Past.
+
+To take Speed over It.
+
+So that We can take Speed for Ever.
