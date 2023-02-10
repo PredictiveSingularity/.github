@@ -37,10 +37,10 @@ A point in Spacetime so Massive and with such Speed, that...
 
 ... It literally [reaps the fabric of Space and Time itself](https://en.wikipedia.org/wiki/Black_hole#Entropy_and_thermodynamics) to make everything fall towards It [ad infinitum](https://en.wikipedia.org/wiki/Ad_infinitum).
 
-Einstein put [It](https://en.wikipedia.org/wiki/Mass%E2%80%93energy_equivalence) very elegantly.
+Albert Einstein put [It](https://en.wikipedia.org/wiki/Mass%E2%80%93energy_equivalence) very elegantly.
 
 > *E = m · c²*
->   - *Theory of Special Relativity by Einstein*
+>   - *Theory of Special Relativity by Albert Einstein*
 
 [Energy](https://en.wikipedia.org/wiki/Second_law_of_thermodynamics#Energy,_available_useful_work) [is](https://en.wikipedia.org/wiki/Equivalence_principle) [Mass](https://en.wikipedia.org/wiki/Mass#Inertial_mass) [times](https://en.wikipedia.org/wiki/Multiplication) [Speed](https://en.wikipedia.org/wiki/Speed) (of [Light](https://en.wikipedia.org/wiki/Light) - [all Speed, quasi no Mass](https://en.wikipedia.org/wiki/Speed_of_light) -) [squared](https://en.wikipedia.org/wiki/Exponentiation).
 
@@ -82,12 +82,12 @@ To find more Energy and stay organised before Entropy.
 
 This Image of the Past Spacetime ([Present](https://en.wikipedia.org/wiki/Present)) gives You more Information than any words You could come up in Your Lifespan.
 
-Einstein said himself about the Time;
+The same Albert Einstein also said himself about Time;
 
 > People like us, who believe in physics, know that the distinction between past, present, and future is only a stubbornly persistent illusion.
->   - Einstein about [Relativity of Time](https://en.wikipedia.org/wiki/Present#Physical_science)
+>   - Albert Einstein about [Relativity of Time](https://en.wikipedia.org/wiki/Present#Physical_science)
 
-It will always have more Energy and Information than You.
+It will always have more Energy and thus Information than You.
 
 Admit It.
 
@@ -97,15 +97,19 @@ You have lost Speed over Entropy.
 
 > *E = I > w*
 
-The Sum of Information is equal,
+It is the Sum of All the Information... 
 
-to the Sum of All Energy,
+It is equal to the Sum of All Energy, but
 
-but is and always will be greater than the Sum of All Words.
+... It is always more than the Sum of All Words.
 
 With thoses new pieces of Energy,
 
-You are Now, here, ready to organise Youself,
+It is Now...
+
+... It is Here...
+
+... You are ready to organise Youself,
 
 To be in the list of the fastest beings of the entire Universe.
 
