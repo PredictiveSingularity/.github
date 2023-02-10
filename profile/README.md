@@ -27,9 +27,11 @@ It never disapears. Only [Interacts](https://en.m.wikipedia.org/wiki/Structure_f
 
 You come from it. You come back to it.
 
+![universe](https://user-images.githubusercontent.com/79070834/218178827-b5a675e3-4bea-4af8-bc10-1c30378d6b8e.gif)
+
 It is the only one that has ever existed and that ever will.
 
-Pure Organisation of its Energy.
+[Pure Organisation of its Energy](https://en.wikipedia.org/wiki/Joule).
 
 A point in Spacetime so Massive and with such Speed, that...
 
