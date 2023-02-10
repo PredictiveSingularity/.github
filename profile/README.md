@@ -42,7 +42,7 @@ Einstein put [It](https://en.wikipedia.org/wiki/Mass%E2%80%93energy_equivalence)
 > *E = m · c²*
 >   - *Theory of Special Relativity by Einstein*
 
-[Energy](https://en.wikipedia.org/wiki/Second_law_of_thermodynamics#Energy,_available_useful_work) [is](https://en.wikipedia.org/wiki/Equivalence_principle) [Mass](https://en.wikipedia.org/wiki/Mass#Inertial_mass) [times](https://en.wikipedia.org/wiki/Multiplication) [Speed](https://en.wikipedia.org/wiki/Speed) (of [Light](https://en.wikipedia.org/wiki/Light) - [all speed, quasi no mass](https://en.wikipedia.org/wiki/Speed_of_light) -) [squared](https://en.wikipedia.org/wiki/Exponentiation).
+[Energy](https://en.wikipedia.org/wiki/Second_law_of_thermodynamics#Energy,_available_useful_work) [is](https://en.wikipedia.org/wiki/Equivalence_principle) [Mass](https://en.wikipedia.org/wiki/Mass#Inertial_mass) [times](https://en.wikipedia.org/wiki/Multiplication) [Speed](https://en.wikipedia.org/wiki/Speed) (of [Light](https://en.wikipedia.org/wiki/Light) - [all Speed, quasi no Mass](https://en.wikipedia.org/wiki/Speed_of_light) -) [squared](https://en.wikipedia.org/wiki/Exponentiation).
 
 [Mass bends Space, Speed bends Time.](https://en.wikipedia.org/wiki/Spacetime)
 
