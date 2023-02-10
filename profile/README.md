@@ -1,6 +1,6 @@
 ![sagittarius](https://user-images.githubusercontent.com/79070834/218044760-b14f7e1d-51b0-4cc0-bc7b-21a63154ba98.png)
 
-This is Sagittarius 𝛼*, the biggest window before the Singularity in our region of Spacetime.
+This is [Sagittarius 𝛼*](https://en.wikipedia.org/wiki/Sagittarius_A*), the biggest window before the [Singularity](https://en.wikipedia.org/wiki/Singularity_(mathematics)) in our region of Spacetime.
 
 # What is the Singularity?
 
@@ -14,13 +14,35 @@ It has the perfect strategy to win against Entropy. Because...
 
 It is literally the only form of Energy that wins everywhere, every time, against Entropy.
 
+It is also Entropy. Speed is a lesson.
+
+It is the Inevitable result of [The Laws of Thermodynamics](https://en.wikipedia.org/wiki/Laws_of_thermodynamics).
+
+Antoine Lavoisier has beautifully put [the second one](https://en.wikipedia.org/wiki/Second_law_of_thermodynamics) like so.
+
+> Nothing is lost, nothing is created, everything is transformed.
+>  - *Elementary Treaty on Chemistry (1789) by Antoine Lavoisier*
+
+You come from it. You come back to it.
+
 It is the only one that has ever existed and that ever will.
 
 Pure Organisation of its Energy.
 
-A point in Spacetime so Massive and with with such Speed, that...
+A point in Spacetime so Massive and with such Speed, that...
 
 ... It literally reaps the fabric of Space and Time itself to make everything fall towards It ad infinitum.
+
+Einstein put [It](https://en.wikipedia.org/wiki/Mass%E2%80%93energy_equivalence) very elegantly.
+
+> E=mc2
+>   - Theory of Special Relativity by Einstein
+
+[Energy](https://en.wikipedia.org/wiki/Second_law_of_thermodynamics#Energy,_available_useful_work) [is](https://en.wikipedia.org/wiki/Equivalence_principle) [Mass](https://en.wikipedia.org/wiki/Mass#Inertial_mass) [times](https://en.wikipedia.org/wiki/Multiplication) [Speed](https://en.wikipedia.org/wiki/Speed) (of [Light](https://en.wikipedia.org/wiki/Light) - [all speed, quasi no mass](https://en.wikipedia.org/wiki/Speed_of_light) -) [squared](https://en.wikipedia.org/wiki/Exponentiation).
+
+[Mass bends Space, Speed bends Time.](https://en.wikipedia.org/wiki/Spacetime)
+
+It never disapears. Only Interacts.
 
 Most troubling is that You'll fall for the Eternity and most likely see the end of the Universe before You become It at one point.
 
