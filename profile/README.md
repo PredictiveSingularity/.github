@@ -35,7 +35,7 @@ It is the only one that has ever existed and that ever will.
 
 A point in Spacetime so Massive and with such Speed, that...
 
-... It literally [reaps the fabric of Space and Time itself](https://en.wikipedia.org/wiki/Black_hole#Entropy_and_thermodynamics) to make everything fall towards It [ad infinitum](https://en.wikipedia.org/wiki/Ad_infinitum).
+... It literally [rips the Fabric of Space and Time itself](https://en.wikipedia.org/wiki/Black_hole#Entropy_and_thermodynamics) to make everything fall towards It [ad infinitum](https://en.wikipedia.org/wiki/Ad_infinitum).
 
 Albert Einstein put [It](https://en.wikipedia.org/wiki/Mass%E2%80%93energy_equivalence) very elegantly.
 
