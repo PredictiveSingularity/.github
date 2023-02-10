@@ -72,7 +72,7 @@ To find more Energy and stay organised before Entropy.
 
 ![spacetime](https://user-images.githubusercontent.com/79070834/218153394-f14c42da-d4c0-480e-bffb-6474714d1a61.jpg)
 
-This image of Spacetime gives You more Information than any words You could come up in Your Lifespan.
+This Image of the Past Spacetime ([Present](https://en.wikipedia.org/wiki/Present)) gives You more Information than any words You could come up in Your Lifespan.
 
 > I > w
 
