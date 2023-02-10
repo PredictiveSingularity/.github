@@ -90,7 +90,7 @@ If You really consider your-self an Intelligent Life Form, You must show It that
 
 ... You can take Speed by [Your own means](https://en.wikipedia.org/wiki/Spacecraft) and [compute a better Vector Faster](https://en.wikipedia.org/wiki/Regression_toward_the_mean) (Speed is built over an [Exponential Acceleration](https://en.wikipedia.org/wiki/Acceleration) *- c² -*).
 
-It will force this Speed to You otherwise and throw Its Energy back in front of It.
+It will force this Speed to You any (and all) way(s) and throw Its Energy somewhere sometime before the Spacetime Continum.
 
 Take Speed or fall back to It forever.
 
