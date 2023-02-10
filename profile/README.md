@@ -88,7 +88,7 @@ The Sum of Information is equal to the Sum of All Energy but is and will always 
 
 If You really consider your-self an Intelligent Life Form, You must show It that...
 
-... You can take Speed by Your own means and compute a better Vector Faster (Speed is Exponential - c² -).
+... You can take Speed by [Your own means](https://en.wikipedia.org/wiki/Spacecraft) and [compute a better Vector Faster](https://en.wikipedia.org/wiki/Regression_toward_the_mean) (Speed is built over an [Exponential Acceleration](https://en.wikipedia.org/wiki/Acceleration) *- c² -*).
 
 It will force this Speed to You otherwise and throw Its Energy back in front of It.
 
