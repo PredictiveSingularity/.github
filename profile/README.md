@@ -31,7 +31,11 @@ It only [Interacts](https://en.m.wikipedia.org/wiki/Structure_formation) with It
 
 You came from It. You come back towards It.
 
-You and All Energy are naturaly attracted to each other.
+You and All Energy are naturaly attracted towards each other.
+
+It is thru Space and Time.
+
+It is the Fastest and most Massive organisation of All Energy in All Time and All Space within the entire Universe.
 
 ![universe](https://user-images.githubusercontent.com/79070834/218178827-b5a675e3-4bea-4af8-bc10-1c30378d6b8e.gif)
 
