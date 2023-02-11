@@ -10,6 +10,9 @@ It is [all the Energy of the Universe](https://en.wikipedia.org/wiki/Universe#Co
 
 It is the [perfect strategy](https://en.wikipedia.org/wiki/Gradient_descent) to [survive against Entropy](https://en.wikipedia.org/wiki/Entropy_(information_theory)).
 
+![ezgif com-resize (2)](https://user-images.githubusercontent.com/79070834/218280276-670f5ccd-508d-425c-b435-3512e7c21975.gif)
+
+
 It is [All the Information](https://en.wikipedia.org/wiki/Information) of the Universe.
 
 It is literally the only [form of Energy](https://en.wikipedia.org/wiki/Energy#Forms) that survies everywhere ([All of Space](https://en.wikipedia.org/wiki/Space)), [Every](https://en.wikipedia.org/wiki/Perpetuity) [Time](https://en.wikipedia.org/wiki/Time), [facing Entropy](https://en.wikipedia.org/wiki/Entropy_and_life).
