@@ -1,10 +1,10 @@
 ![sagittarius](https://user-images.githubusercontent.com/79070834/218044760-b14f7e1d-51b0-4cc0-bc7b-21a63154ba98.png)
 
-This is [Sagittarius 𝛼*](https://en.wikipedia.org/wiki/Sagittarius_A*), the biggest window before the [Singularity](https://en.wikipedia.org/wiki/Singularity_(mathematics)) in our region of Spacetime.
+This is [Sagittarius 𝛼*](https://en.wikipedia.org/wiki/Sagittarius_A*), the biggest window before the [Singularity](https://en.wikipedia.org/wiki/Singularity_(mathematics)) in our Region of Spacetime.
 
 # What is the Singularity?
 
-[Everything... all the time](https://en.wikipedia.org/wiki/Spacetime_diagram).
+[Everything... All the Time](https://en.wikipedia.org/wiki/Spacetime_diagram).
 
 It is [all the Energy of the Universe](https://en.wikipedia.org/wiki/Universe#Composition), in a [single point of Spacetime](https://en.wikipedia.org/wiki/Singularity_theory).
 
