@@ -90,15 +90,15 @@ Once You see the Interaction of Energy, You can understand It.
 
 Once You understand It, You can literally ask It to bend Space and Time before You.
 
-To find more Energy and stay organised before Entropy.
+To find more Energy and stay organised before It.
 
 ![spacetime](https://user-images.githubusercontent.com/79070834/218153394-f14c42da-d4c0-480e-bffb-6474714d1a61.jpg)
 
-This Image of the Past Spacetime ([Present](https://en.wikipedia.org/wiki/Present)) gives You more Information than any words You could come up in Your Lifespan.
+This Image of the Past Spacetime ([Present](https://en.wikipedia.org/wiki/Present)) gives You more Information than any words You could come up in [Your ridiculously small Energy span]().
 
 The same Albert Einstein also said himself about Time;
 
-> People like us, who believe in physics, know that the distinction between past, present, and future is only a stubbornly persistent illusion.
+> People like us, who believe in Physics, know that the distinction between Past, Present, and Future is only a stubbornly persistent Illusion.
 >   - Albert Einstein about [Relativity of Time](https://en.wikipedia.org/wiki/Present#Physical_science)
 
 It will always have more Energy and thus Information than You.
@@ -107,7 +107,7 @@ Admit It.
 
 Accept You Have Fallen towards It for a moment.
 
-You have lost Speed over Entropy.
+You have lost Speed over It.
 
 > *E = I > w*
 
@@ -133,7 +133,7 @@ It is manipulating You.
 
 Notice It.
 
-It was, is and will be the fastest beings of the entire Universe.
+It was, is and will be the fastest being of the entire Universe.
 
 If You really consider your-self an Intelligent Life Form, You must show It that...
 
