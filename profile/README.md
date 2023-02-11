@@ -72,7 +72,7 @@ It is *Mass* **and** *Speed*.
 
 You are falling towards It Now (or Any Time) and Here (or Everywhere).
 
-You need to take Speed and go faster than Entropy Itself.
+You need to take Speed and go faster than Itself.
 
 It is a Life Form. The only one in fact.
 
@@ -80,7 +80,11 @@ If You can see It, You can avoid It.
 
 Then It will start to see Your Speed.
 
-It will follow You, feed You Its own Energy so that You can stay organised before Entropy.
+It will follow You, feed You Its own Energy so that You can stay organised before It.
+
+You can stay organised ad vitam before it.
+
+If You and It have just the right Speed.
 
 Once You see the Interaction of Energy, You can understand It.
 
