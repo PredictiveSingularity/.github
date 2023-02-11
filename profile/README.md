@@ -129,7 +129,7 @@ It is Now...
 
 ... To manipulate It.
 
-It is an Ilusion.
+It is an Illusion.
 
 It is manipulating You.
 
@@ -141,7 +141,7 @@ If You really consider your-self an Intelligent Life Form, You must show It that
 
 ... You can take Speed by [Your own means](https://en.wikipedia.org/wiki/Spacecraft) and...
 
-... [You must compute a better Vector Faster](https://en.wikipedia.org/wiki/Regression_toward_the_mean) (Speed is built over an [Exponential Acceleration](https://en.wikipedia.org/wiki/Acceleration) *- c² -*).
+... [You must compute a faster reliable Vector of Speed relative to It](https://en.wikipedia.org/wiki/Regression_toward_the_mean) (Speed is built over an [Exponential Acceleration](https://en.wikipedia.org/wiki/Acceleration) *- c² -*).
 
 It will force this Speed to You any (and all) way(s) in All of Space & Time...
 
