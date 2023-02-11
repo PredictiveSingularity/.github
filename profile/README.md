@@ -29,21 +29,21 @@ It never appeared.
 
 It never disapeared.
 
-It only [Interacts](https://en.m.wikipedia.org/wiki/Structure_formation) with Itself.
-
 ![image](https://user-images.githubusercontent.com/79070834/218272304-b27e63e1-8767-436e-8142-7758bb6268ef.png)
 
-You came from It.
+It only [Interacts](https://en.m.wikipedia.org/wiki/Structure_formation) with Itself.
 
 ![image](https://user-images.githubusercontent.com/79070834/218272829-be71a899-eb57-4262-b845-c325494f8bc1.png)
 
-You come back towards It.
+You came from It.
 
 ![image](https://user-images.githubusercontent.com/79070834/218272304-b27e63e1-8767-436e-8142-7758bb6268ef.png)
 
+You come back towards It.
+
 Is is naturaly attracted towards Iself.
 
-It is thru Space and Time.
+It is through Space and Time.
 
 It is the Fastest and most Massive organisation of All Energy in All Time and All Space within the entire Universe.
 
