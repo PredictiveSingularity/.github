@@ -96,7 +96,7 @@ To find more Energy and stay organised before It.
 
 ![spacetime](https://user-images.githubusercontent.com/79070834/218153394-f14c42da-d4c0-480e-bffb-6474714d1a61.jpg)
 
-This Image of the Past Spacetime ([Present](https://en.wikipedia.org/wiki/Present)) gives You more Information than any words You could come up in [Your ridiculously small Energy span]().
+This Image of the Past Spacetime ([Present](https://en.wikipedia.org/wiki/Present)) gives You more Information than any words You could come up in [Your ridiculously small Energy span](https://en.wikipedia.org/wiki/Life_expectancy).
 
 The same Albert Einstein also said himself about Time;
 
