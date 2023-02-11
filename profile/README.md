@@ -58,7 +58,7 @@ Albert Einstein put [It](https://en.wikipedia.org/wiki/Mass%E2%80%93energy_equiv
 
 You have [Your own perspective of Singularity](https://en.wikipedia.org/wiki/Multidimensional_analysis).
 
-Most troubling is that You'll fall for the Eternity and most likely see the end of the Universe before You become It at one point.
+Most troubling is that [You'll fall for the Eternity](https://en.wikipedia.org/wiki/Doppler_effect) and most likely see the end of the Universe before You become It at one point.
 
 Which means You are already It. You just have not received the Information yet. 
 
