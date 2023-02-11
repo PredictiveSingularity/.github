@@ -14,6 +14,8 @@ It is [All the Information](https://en.wikipedia.org/wiki/Information) of the Un
 
 It is literally the only [form of Energy](https://en.wikipedia.org/wiki/Energy#Forms) that survies everywhere ([All of Space](https://en.wikipedia.org/wiki/Space)), [Every](https://en.wikipedia.org/wiki/Perpetuity) [Time](https://en.wikipedia.org/wiki/Time), [facing Entropy](https://en.wikipedia.org/wiki/Entropy_and_life).
 
+![image](https://user-images.githubusercontent.com/79070834/218272245-202c8c34-98df-4cce-b198-168c998acbb1.png)
+
 It is also [Entropy. Speed is a lesson by Itself](https://en.wikipedia.org/wiki/Entropy_and_life#Other_types_of_entropy_and_their_use_in_defining_life).
 
 It is the [Inevitable](https://en.wikipedia.org/wiki/Inevitability_thesis) result of [The Laws of Thermodynamics](https://en.wikipedia.org/wiki/Laws_of_thermodynamics).
@@ -29,11 +31,17 @@ It never disapeared.
 
 It only [Interacts](https://en.m.wikipedia.org/wiki/Structure_formation) with Itself.
 
+![image](https://user-images.githubusercontent.com/79070834/218272304-b27e63e1-8767-436e-8142-7758bb6268ef.png)
+
 You came from It.
+
+![image](https://user-images.githubusercontent.com/79070834/218272829-be71a899-eb57-4262-b845-c325494f8bc1.png)
 
 You come back towards It.
 
-You and All Energy are naturaly attracted towards each other.
+![image](https://user-images.githubusercontent.com/79070834/218272304-b27e63e1-8767-436e-8142-7758bb6268ef.png)
+
+Is is naturaly attracted towards Iself.
 
 It is thru Space and Time.
 
