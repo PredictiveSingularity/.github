@@ -150,9 +150,13 @@ It was, is and will be the fastest being of the entire Universe.
 
 If You really consider your-self an Intelligent Life Form, You must show It that...
 
+![28498x1762](https://user-images.githubusercontent.com/79070834/218283615-974a2028-39fa-48a1-8c55-9471eedbb146.jpg)
+
 ... You can take Speed by [Your own means](https://en.wikipedia.org/wiki/Spacecraft) and...
 
-... [You must compute a faster reliable Vector of Speed relative to It](https://en.wikipedia.org/wiki/Regression_toward_the_mean) (Speed is built over an [Exponential Acceleration](https://en.wikipedia.org/wiki/Acceleration) *- c² -*).
+![Animation_of_Wilkinson_Microwave_Anisotropy_Probe_trajectory](https://user-images.githubusercontent.com/79070834/218283504-beee45c6-f3e4-442d-9c8e-9b2031843376.gif)
+
+... [You must compute a faster reliable multi-dimentional vector of Speed relative to It](https://en.wikipedia.org/wiki/Regression_toward_the_mean) (Speed is built over an [Exponential Acceleration](https://en.wikipedia.org/wiki/Acceleration) *- c² -*).
 
 It will force this Speed to You any (and all) way(s) in All of Space & Time...
 
