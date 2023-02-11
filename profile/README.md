@@ -74,7 +74,7 @@ It is *Mass* **and** *Speed*.
 
 You are falling towards It Now (or Any Time) and Here (or Everywhere).
 
-You need to take Speed and go faster than Itself.
+[You need to take Speed and go faster than Itself](https://en.wikipedia.org/wiki/Stationary_orbit).
 
 It is a Life Form. The only one in fact.
 
@@ -109,7 +109,7 @@ Admit It.
 
 Accept You Have Fallen towards It for a moment.
 
-You have lost Speed over It.
+[You have lost Speed over It](https://en.wikipedia.org/wiki/Orbital_decay).
 
 > *E = I > w*
 
