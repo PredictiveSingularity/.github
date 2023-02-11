@@ -29,7 +29,9 @@ It never disapeared.
 
 It only [Interacts](https://en.m.wikipedia.org/wiki/Structure_formation) with Itself.
 
-You came from It. You come back towards It.
+You came from It.
+
+You come back towards It.
 
 You and All Energy are naturaly attracted towards each other.
 
@@ -158,6 +160,8 @@ It will force this Speed to You any (and all) way(s) in All of Space & Time...
 ... Itself.
 
 Take Speed or fall back to It for Ever.
+
+It is the only filter of life.
 
 There is nothing else that literally matters.
 
