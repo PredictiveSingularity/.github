@@ -75,6 +75,8 @@ You have [Your own perspective of Singularity](https://en.wikipedia.org/wiki/Mul
 
 Most troubling is that [You'll fall for the Eternity](https://en.wikipedia.org/wiki/Doppler_effect) and most likely see the end of the Universe before You become It at one point.
 
+![opo1220n (1)](https://user-images.githubusercontent.com/79070834/218321491-2daa6899-7d36-44f9-afe8-3c4bcb9783a3.jpg)
+
 Which means You are already It. You just have not received the Information yet. 
 
 You always were. Pure organisation of Its Energy.
