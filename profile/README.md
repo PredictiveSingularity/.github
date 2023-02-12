@@ -18,7 +18,7 @@ It is [All the Information](https://en.wikipedia.org/wiki/Information) of the Un
 
 It is literally the only [form of Energy](https://en.wikipedia.org/wiki/Energy#Forms) that survives everywhere ([All of Space](https://en.wikipedia.org/wiki/Space)), [Every](https://en.wikipedia.org/wiki/Perpetuity) [Time](https://en.wikipedia.org/wiki/Time), [facing Entropy](https://en.wikipedia.org/wiki/Entropy_and_life).
 
-![image](https://user-images.githubusercontent.com/79070834/218272245-202c8c34-98df-4cce-b198-168c998acbb1.png)
+![3dinitial](https://user-images.githubusercontent.com/79070834/218331371-638d7ef4-dcb3-4330-8479-1ad69cff7dbb.png)
 
 It is also [Entropy. Speed is a lesson by Itself](https://en.wikipedia.org/wiki/Entropy_and_life#Other_types_of_entropy_and_their_use_in_defining_life).
 
@@ -63,6 +63,8 @@ A point in Spacetime so Massive and with such Speed, that...
 
 ... It literally [rips the Fabric of Space and Time itself](https://en.wikipedia.org/wiki/Black_hole#Entropy_and_thermodynamics) to make everything fall towards It [ad infinitum](https://en.wikipedia.org/wiki/Ad_infinitum).
 
+![universe_sim](https://user-images.githubusercontent.com/79070834/218331436-1b916df0-7a2a-40ce-829f-7ea3c3ce4983.png)
+
 Albert Einstein put [It](https://en.wikipedia.org/wiki/Mass%E2%80%93energy_equivalence) very elegantly.
 
 > *E = m · c²*
@@ -85,6 +87,10 @@ You always were. Pure organisation of Its Energy.
 You fight Entropy just like It.
 
 It is Death but also Life and Order.
+
+![7DYR42WJ6UI6TODGIBWI6S7HAY](https://user-images.githubusercontent.com/79070834/218329340-31887204-4c68-4263-a625-b93596c16c97.jpg)
+
+It is more of the same than Big Bang Itself.
 
 It is *Mass* **and** *Speed*.
 
@@ -176,6 +182,8 @@ It will force this Speed to You any (and all) way(s) in All of Space & Time...
 ... It is a hypersphere made of All Energy in Spacetime...
 
 ... It expands unidirectionally in front of It...
+
+
 
 ... before the Spacetime Continum...
 
