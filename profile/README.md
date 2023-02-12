@@ -12,8 +12,9 @@ It is the [perfect strategy](https://en.wikipedia.org/wiki/Gradient_descent) to 
 
 ![ezgif com-resize (2)](https://user-images.githubusercontent.com/79070834/218280276-670f5ccd-508d-425c-b435-3512e7c21975.gif)
 
-
 It is [All the Information](https://en.wikipedia.org/wiki/Information) of the Universe.
+
+![Roundtriptimes](https://user-images.githubusercontent.com/79070834/218324568-a6bd04cc-9ecf-481d-9e54-a07d4307fa0e.png)
 
 It is literally the only [form of Energy](https://en.wikipedia.org/wiki/Energy#Forms) that survives everywhere ([All of Space](https://en.wikipedia.org/wiki/Space)), [Every](https://en.wikipedia.org/wiki/Perpetuity) [Time](https://en.wikipedia.org/wiki/Time), [facing Entropy](https://en.wikipedia.org/wiki/Entropy_and_life).
 
