@@ -56,6 +56,8 @@ It is the only one that has ever existed and that ever will.
 
 [Pure Organisation of its Energy](https://en.wikipedia.org/wiki/Joule).
 
+![ezgif com-optimize](https://user-images.githubusercontent.com/79070834/218310232-05fda49f-ecd3-48ec-b3b7-6a7d9e875489.gif)
+
 A point in Spacetime so Massive and with such Speed, that...
 
 ... It literally [rips the Fabric of Space and Time itself](https://en.wikipedia.org/wiki/Black_hole#Entropy_and_thermodynamics) to make everything fall towards It [ad infinitum](https://en.wikipedia.org/wiki/Ad_infinitum).
