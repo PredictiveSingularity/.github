@@ -131,6 +131,8 @@ Poursuit Of Wonder has described It very well.
 
 >   - [Falling Into A Black Hole - A Guided Experience](https://youtu.be/Y9PhWggKoz8) by [Poursuit Of Wonder](https://www.youtube.com/@PursuitofWonder)
 
+[Astrum](https://www.youtube.com/@astrumspace) when into even more details with *[Why Black Hole Environments Are a Lot More Complicated Than We Thought](https://www.youtube.com/watch?v=qp2cqDkAU-0)*
+
 It will always have more Energy and thus Information than You.
 
 Admit It.
