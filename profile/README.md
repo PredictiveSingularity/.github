@@ -125,13 +125,9 @@ The same Albert Einstein also said himself about Time;
 > People like us, who believe in Physics, know that the distinction between Past, Present, and Future is only a stubbornly persistent Illusion.
 >   - Albert Einstein about [Relativity of Time](https://en.wikipedia.org/wiki/Present#Physical_science)
 
-Poursuit Of Wonder has described It very well.
+![ezgif com-resize(2)](https://user-images.githubusercontent.com/79070834/221708010-75149412-6bd6-4215-bec6-b99bbc20b0d1.gif)
 
-[![ezgif com-optimize (1)](https://user-images.githubusercontent.com/79070834/218486878-a49a532e-c51b-4507-b0e0-c19f5dee4e79.gif)](https://youtu.be/Y9PhWggKoz8)
-
->   - [Falling Into A Black Hole - A Guided Experience](https://youtu.be/Y9PhWggKoz8) by [Poursuit Of Wonder](https://www.youtube.com/@PursuitofWonder)
-
-[Astrum](https://www.youtube.com/@astrumspace) went into even more details with *[Why Black Hole Environments Are a Lot More Complicated Than We Thought](https://www.youtube.com/watch?v=qp2cqDkAU-0)*
+[Astrum](https://www.youtube.com/@astrumspace) went into great details with *[Why Black Hole Environments Are a Lot More Complicated Than We Thought](https://www.youtube.com/watch?v=qp2cqDkAU-0)*
 
 It will always have more Energy and thus Information than You.
 
