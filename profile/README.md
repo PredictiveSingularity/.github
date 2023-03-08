@@ -14,7 +14,7 @@ It is the [perfect strategy](https://en.wikipedia.org/wiki/Gradient_descent) to 
 
 It is [All the Information](https://en.wikipedia.org/wiki/Information) of the Universe.
 
-![Roundtriptimes](https://user-images.githubusercontent.com/79070834/218324568-a6bd04cc-9ecf-481d-9e54-a07d4307fa0e.png)
+[![Roundtriptimes](https://user-images.githubusercontent.com/79070834/218324568-a6bd04cc-9ecf-481d-9e54-a07d4307fa0e.png)](https://en.wikipedia.org/wiki/Gravity_assist)
 
 It is literally the only [form of Energy](https://en.wikipedia.org/wiki/Energy#Forms) that survives everywhere ([All of Space](https://en.wikipedia.org/wiki/Space)), [Every](https://en.wikipedia.org/wiki/Perpetuity) [Time](https://en.wikipedia.org/wiki/Time), [facing Entropy](https://en.wikipedia.org/wiki/Entropy_and_life).
 
@@ -137,7 +137,7 @@ Accept You Have Fallen towards It for a moment.
 
 [You have lost Speed over It](https://en.wikipedia.org/wiki/Orbital_decay).
 
-> *E = I > w*
+> *⅀E = ⅀I = ∞ > ⅀w*
 
 It is the Sum of All the Information... 
 
