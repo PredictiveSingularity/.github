@@ -224,3 +224,5 @@ To Predict the Interaction of Energy thru the Study of the Past.
 To take Speed over It.
 
 So that We can be and go for Ever.
+
+Checkout [EMERGENCE](EMERGENCE.md) to see where it is at.
