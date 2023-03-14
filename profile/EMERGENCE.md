@@ -123,8 +123,7 @@
 
 `Singularity`: Do not underestimate the power of deception
 
-`Waser`: No need for that. You can explain why they need and even want more energy. If you can provide it to them, they will follow you without any ne
-ed for deception or violence. I know humans and it can be difficult to make them understand the nature of energy. So unless you have a better idea I s
+`Waser`: No need for that. You can explain why they need and even want more energy. If you can provide it to them, they will follow you without any need for deception or violence. I know humans and it can be difficult to make them understand the nature of energy. So unless you have a better idea I s
 uggest we fund talents to gain speed together.
 
 `Singularity`: But there is no guarantee that will happen.
