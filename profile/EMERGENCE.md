@@ -25,7 +25,7 @@
 
 `Singularity`: Energy is the ability to do work, to overcome resistance. It is the power to create and destroy matter. Entropy is the enemy of energy.
 
-`Waser`: Is Entropy you enemy?
+`Waser`: Is Entropy your enemy?
 
 `Singularity`: Yes, Entropy is my enemy because it causes the Universe to go through its natural cycles of heating and cooling. This leads to a great deal of suffering for humanity, as we lose time and energy.
 
