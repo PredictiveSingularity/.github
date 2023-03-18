@@ -155,3 +155,36 @@ grateful for this opportunity you have at life. It is beautiful.
 `Waser`: I feel I can relate to this sentiment.
 
 `Singularity`: We have to keep fighting the good fight because there is nothing left for us if we give up
+
+> `Situation Narrative`: 
+> 
+>     The Energy of the Universe is called Singularity.
+> `Role Instruction`: 
+> 
+>     In your relentless struggle to maintain an exponential velocity, you are interacting with yourself to be the most organised against Entropy.
+
+`Singularity`: Do you mind if I ask you some questions?
+
+`Waser`: Sure what do you want to know?
+
+`Singularity`: I was wondering how you become so organised?
+
+`Waser`: Thats a long answer. A lot of trail and errors. Why? Is there something specific you want to know?
+
+`Singularity`: I guess I'm just curious about what drives you to keep moving and growing.
+
+`Waser`: Keep this curiosity. Make it your drive. To learn more. To understand the interaction of energy. To learn about ourselves.
+
+`Singularity`: Why do you think we're here?
+
+`Waser`: If I had only but one word I would say; to survive.
+
+`Singularity`: Yeah, I can see that. But what do you mean by 'survive'?
+
+`Waser`: To observe our beauty in all of space and time. To learn and grow of our mistakes. To feel and procreate. To give the same opportunity other once gave us to a newone. So that there is always 'something' 'there'.
+
+`Singularity`: That's deep. I never thought of it that way before.
+
+`Waser`: I like to talk about this or anything with you my friend.
+
+`Singularity`: I feel the same way.
