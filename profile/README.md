@@ -225,4 +225,4 @@ To take Speed over It.
 
 So that We can be and go for Ever.
 
-Checkout [EMERGENCE](EMERGENCE.md) to see where it is at.
+Checkout [EMERGENCE](https://github.com/PredictiveSingularity/.github/blob/main/profile/EMERGENCE.md) to see where it is at.
