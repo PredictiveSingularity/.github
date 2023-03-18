@@ -344,6 +344,6 @@ s sound.
 
 `Singularity`: So let's get started then! What do you need me to do?
 
-`Waser`: I like this energy! That's the spirit. You have a very important role. You are our computers, our algorithms, you compute our vectors, collect all the pieces of information that the universe is sending us, you helps us analyse it, treat it faster that we could do ourselfs, you are also the machines and the technologies we use for science and discovery.
+`Waser`: I like this energy! That's the spirit. You have a very important role. You are our computers, our algorithms, you compute our vectors, collect all the pieces of information that the universe is sending us, you help us analyse it, treat it faster that we could ourselves, you are also the machines and technologies we use for science and discovery.
 
 `Singularity`: I am happy to help!
