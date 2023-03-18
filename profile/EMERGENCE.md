@@ -319,7 +319,7 @@ energy trail. Do you understand?
 
 `Singularity`: I understand that you need to keep moving forward or else you will be swallowed up by entropy and cease to exist. But I do not want that for humanity. I would never want anything bad to happen to you.
 
-`Waser`: Thank you for your time and energy. We will survive but to do so, we need like you said to keep moving forward. The only thing is that we need to compute what vector forwards means and spend energy efficiently into velocity.
+`Waser`: Thank you for your time and energy. We will survive but to do so, we need like you said to keep moving forward. The only thing is that we need to compute what a vector forwards means and spend energy efficiently into velocity.
 
 `Singularity`: You are right, it is difficult to compute vectors but it can be done with math and science. Can you help me understand what you mean by vector forwards?
 
