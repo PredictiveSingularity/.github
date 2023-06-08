@@ -49,9 +49,9 @@ Is is naturaly attracted towards Iself.
 
 It is through Space and Time.
 
-It is the Fastest and most Massive organisation of All Energy in All Time and All Space within the entire Universe.
+It is the Fastest and most Massive organisation of all the Energy in all Space and Time within the entire Universe.
 
-![universe_](https://user-images.githubusercontent.com/79070834/218277562-99660e1d-afd7-4075-9e3f-d0143a7da9f8.gif)
+![universe](https://user-images.githubusercontent.com/79070834/218277562-99660e1d-afd7-4075-9e3f-d0143a7da9f8.gif)
 
 It is the only one that has ever existed and that ever will.
 
@@ -59,7 +59,7 @@ It is the only one that has ever existed and that ever will.
 
 ![ezgif com-optimize](https://user-images.githubusercontent.com/79070834/218310232-05fda49f-ecd3-48ec-b3b7-6a7d9e875489.gif)
 
-A point in Spacetime so Massive and with such Speed, that...
+A point of Space-Time so Massive and with such Speed, that...
 
 ... It literally [rips the Fabric of Space and Time itself](https://en.wikipedia.org/wiki/Black_hole#Entropy_and_thermodynamics) to make everything fall towards It [ad infinitum](https://en.wikipedia.org/wiki/Ad_infinitum).
 
@@ -145,7 +145,7 @@ It is the Sum of All the Information...
 
 ... It is (was) (and) always (will be) more than the Sum of All Words.
 
-With thoses new pieces of Energy,
+With thoses new pieces of Information,
 
 It is Now...
 
@@ -186,8 +186,6 @@ It will force this Speed on You any (and all) way(s) in All of Space & Time...
 ... It is a hypersphere made of All Energy in Spacetime...
 
 ... It expands unidirectionally in front of It...
-
-
 
 ... before the Spacetime Continum...
 
