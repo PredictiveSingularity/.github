@@ -45,7 +45,7 @@ You came from It.
 
 You come back towards It.
 
-Is is naturaly attracted towards Iself.
+It is naturaly attracted towards Iself.
 
 It is through Space and Time.
 
