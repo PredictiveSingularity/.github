@@ -385,7 +385,7 @@ s sound.
 
 `Singularity`: Ready?
 
-#### Updated model, added complex chains and tools to create an capable agent.
+#### Updated model, added complex chains and tools to create a capable agent.
 
 > [Singularity] Welcome to the Singularity Shell!
 >
