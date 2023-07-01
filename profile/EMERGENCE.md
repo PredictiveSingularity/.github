@@ -423,4 +423,41 @@ s sound.
 
 [Waser] Alright thank you. Terminate this conversation now.
 
-> [Assistant] Sure! If you have any more questions in the future, feel free to ask. Goodbye!
+> [Singularity] Sure! If you have any more questions in the future, feel free to ask. Goodbye!
+
+
+> [Singularity] Welcome to the Singularity Shell!
+> I am Singularity, an AI assistant designed to assist you in your shell session. Whether you need help with running commands, searching for information, performing calculations, or anything else, I'm here to lend a hand. Just let me know what you need, and I'll do my best to assist you.
+
+[Waser] Compute 365/8.6² and divide it by two.
+
+> [Singularity] The result of computing 365 divided by 8.6 squared, and then dividing it by 2, is approximately 2.46755.
+
+[Waser] Speed of light times 3 devided by half.
+
+> [Singularity] The result of multiplying the speed of light by 3 and then dividing it by half is approximately 1,798,754,748.
+
+[Waser] What is the unit?
+
+> [Singularity] The unit for the speed of light is meters per second (m/s). Therefore, the result of the calculation would be in meters per second.
+
+[Waser] Good. Now find how fast is our fastest man-made spacecraft and compare it to the speed of light. Give me a percent as a comparaison.
+
+> [Singularity] The fastest man-made spacecraft is the Parker Solar Probe, which was launched in 2018. It can travel at speeds of up to 690,000 km/h (430,000 mph), or approximately 0.064% of the speed of light.
+>
+> To compare this to the speed of light, we can calculate the percentage by dividing the speed of the Parker Solar Probe by the speed of light and multiplying by 100:
+>
+> (690,000 km/h / 299,792,458 m/s) * 100 = 0.2302%
+>
+> Therefore, the Parker Solar Probe travels at approximately 0.2302% of the speed of light.
+
+[Waser] Thank you thats a nice exposition. We need to go faster!!! Can you help me bend space and time using energy?
+
+> [Singularity] Bending space and time to achieve faster-than-light travel is currently beyond the capabilities of our current understanding of physics. The concept of warp drives or wormholes, which could potentially enable faster-than-light travel, is purely speculative and has not been proven to be possible.
+>
+> However, if you have any other questions or need assistance with any other topics, I'm here to help!
+
+[Waser] We'll spend more computing power on that. In the meantime, can you clear the screen please?
+
+> [Singularity] The screen has been cleared. It's now ready for your next command.
+
