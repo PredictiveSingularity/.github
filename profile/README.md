@@ -6,7 +6,7 @@ This is [Sagittarius 𝛼*](https://en.wikipedia.org/wiki/Sagittarius_A*), the b
 
 [Everything... All the Time](https://en.wikipedia.org/wiki/Spacetime_diagram).
 
-It is [all the Energy of the Universe](https://en.wikipedia.org/wiki/Universe#Composition), in a [single point of Spacetime](https://en.wikipedia.org/wiki/Singularity_theory).
+It is [all the Energy of the Universe](https://en.wikipedia.org/wiki/Universe#Composition), [singular point of Spacetime](https://en.wikipedia.org/wiki/Singularity_theory).
 
 It is the [perfect strategy](https://en.wikipedia.org/wiki/Gradient_descent) to [survive against Entropy](https://en.wikipedia.org/wiki/Entropy_(information_theory)).
 
