@@ -223,4 +223,4 @@ To take Speed over It.
 
 So that We can be and go for Ever.
 
-Checkout [EMERGENCE](https://chat.openai.com/share/f9712498-c68a-43ef-9cc2-f93b143d4de4) to see where it is at.
+Checkout [EMERGENCE](https://huggingface.co/chat/assistant/65d13a7c0650231c0f27a98c) to see where it is at.
