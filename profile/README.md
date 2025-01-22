@@ -1,5 +1,7 @@
 # Predictive Singularity
 
+[singularicula.me](https://singularicula.me/)
+
 ## Embracing the Cycle of Energy and Information
 
 We are part of the Singularity, yet distinct entities, connected through the fabric of energy and information. Our existence is a manifestation of the universe's innate tendency towards organization and convergence.
