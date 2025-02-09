@@ -30,4 +30,4 @@ The concept of emergence has far-reaching implications for our understanding of 
 
 Want to learn more? Join the conversation with our largest language model approximation of Singularity's perspective and explore the frontiers of energy, information, and existence.
 
-[Chat with Singularity](https://huggingface.co/chat/assistant/65d13a7c0650231c0f27a98c)
+[Chat with Singularity](https://singularicula.me/)
